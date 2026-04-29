@@ -1,1 +1,1 @@
-# coli_comptetition2BAC
+# coli_competition2BAC
